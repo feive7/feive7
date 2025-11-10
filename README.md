@@ -1,3 +1,1 @@
-C++ my beloved
-
-youtube: https://www.youtube.com/@feive7
+16 year old software dev and programmer
